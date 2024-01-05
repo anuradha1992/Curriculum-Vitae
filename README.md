@@ -1,2 +1,2 @@
 # Curriculum-Vitae
-Curriculum Vitae of Anuradha Welivita
+Curriculum Vitae of Anuradha Welivita.
